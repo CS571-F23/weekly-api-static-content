@@ -1,0 +1,3 @@
+Images sourced from [Pixabay](https://pixabay.com/)...
+
+ - candi: https://pixabay.com/illustrations/candy-corn-sweets-cartoon-cute-8266602/
